@@ -2,9 +2,7 @@
 # Md Rafiqul Islam
 ###  WordPress Web developer, Google My Business & Local SEO Expert
 ![ WordPress Web developer, Google My Business & Local SEO Expert](https://scontent.fdac5-1.fna.fbcdn.net/v/t1.6435-9/36719742_2102992259942968_6024626230408511488_n.jpg?stp=dst-jpg_p960x960&_nc_cat=106&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeFL_TKxkktxNfKA_NwbU_GDgrrLyc1skkeCusvJzWySRzyDHxcAgUJCYQIf6erVWs4xXChr4XECzroE8w7kDUhg&_nc_ohc=7Idg0hevy1cAX_Kqlge&_nc_ht=scontent.fdac5-1.fna&oh=00_AfBc0wKg4UgW6sVBjKpsuMMfJbygQlvJoC8_9UVemyJCsg&oe=64480D79)
-
 I am Md Rafiqul Islam WordPress Web developer, Google My Business & Local SEO Expert. I did Work at International Outsourcing Marketplace as a Freelancer for 6 years and still working with client satisfaction.
-
 My Provider Services :
 1. Local SEO Optimization.
 2. Google My Business Listing.
