@@ -12,7 +12,6 @@ My Provider Services :
 4. Google Map Citation and Local Citation.
 5. GMB Optimization For Google Ranking.
 6. GMB Full Setup for Google Ranking.
-
 7.WordPress Website On-page, Off-Page & Technical SEO.
 8. WordPress Website Speed Optimization, Backup, and Bug Fixing.
 9. Shopify Full Optimization, Product Image SEO.
@@ -20,13 +19,14 @@ My Provider Services :
 11. Android Apps published in google play console or play store.
 12. Social Media Profile Management and Youtube Chanel SEO.
 13.WordPress Web Design.
+
 Dear Viewar if you want to be interested in my above services. so you can free contact me anytime.  you will get Unlimited support 24/7 days.
 Local SEO is the practice of optimizing your website, Google My Business, and online presence to appear higher in local search engine results for relevant searches. 
 so do not forget about the service because it can help you to grow your business.
 
 
 
-Skills: HTML / CSS/Wordpress Web Design/Google My Business/Local SEO Optimization
+Skills: HTML / CSS/Wordpress Website Design/Google My Business/Local SEO Optimization
 
 - 🔭 I’m currently working on Fiverr, Upwork, Kwork and Facebook 
 - 🌱 I’m currently learning JavaScript 
